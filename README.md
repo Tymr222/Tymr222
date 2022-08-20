@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tymr222
+- 👀 I’m interested in coding and climbing
+- 🌱 I’m currently learning the basics of the basics
+- 📫 How to reach me mateuszgrzywna24@gmail.com
